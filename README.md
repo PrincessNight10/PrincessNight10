@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PrincessNight10 also lnow Santiago Rojas Rodríguez
+- 👋 Hi, I’m @PrincessNight10 also know Santiago Rojas Rodríguez
 - 👀 I’m interested in software developer
 - 🌱 I’m currently learning programing lenguage
 - 💞️ I’m looking to collaborate on diferent ac
